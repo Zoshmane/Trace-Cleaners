@@ -2,4 +2,3 @@
 Best Fortnite Trace Cleaners
 -------------------------------------------
 
-Discord.gg/fnunbanned
